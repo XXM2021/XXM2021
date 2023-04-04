@@ -1,1 +1,1 @@
-[https://https://newverdev.rapiddns.io/](https://newverdev.rapiddns.io/)
+[https://newverdev.rapiddns.io/1.html](https://newverdev.rapiddns.io/1.html)
